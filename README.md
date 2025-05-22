@@ -2,7 +2,7 @@
 
  **STEP 2 type py Calculator**
 
- **STEP 3 Have fun with the little projectooking for help with**
+ **STEP 3 Have fun with the little project**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
